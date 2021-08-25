@@ -1,1 +1,1 @@
-# jgpope02 says Hello!
+# jgpope02.github.io
